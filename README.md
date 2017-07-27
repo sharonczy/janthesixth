@@ -1,1 +1,1 @@
-# janthesixth.github.io
+# janthesixth
